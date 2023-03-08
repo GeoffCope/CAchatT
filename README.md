@@ -6,6 +6,6 @@ The Lucid Dream Simulator 3 Neophytes Edition should not be confused with the LD
 For information concerning LDS-1 and LDS-2 please see:
 https://www.youtube.com/watch?v=FIMaf4RemOU
 
-KAchaT aspires to make pretty pictures.
+KAchaT aspires to make pretty pictures using the forhtconing app KATchat
 
 https://www.youtube.com/watch?v=Si6NbKqYEd8
