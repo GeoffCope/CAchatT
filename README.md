@@ -5,3 +5,7 @@ Completion of KAchatT is dependent on the following:  LDS-3 (Lucid Dream Simulat
 The Lucid Dream Simulator 3 Neophytes Edition should not be confused with the LDS-3 NeoFights which were already featured in The Matrix.
 For information concerning LDS-1 and LDS-2 please see:
 https://www.youtube.com/watch?v=FIMaf4RemOU
+
+KAchaT aspires to make pretty pictures.
+
+https://www.youtube.com/watch?v=Si6NbKqYEd8
