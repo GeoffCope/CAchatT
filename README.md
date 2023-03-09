@@ -14,3 +14,9 @@ Don't worry helium, we're coming for you.  Too bad that's in California, probabl
 
 
 https://ui.adsabs.harvard.edu/abs/1974anh.....3.....P/abstract
+
+Seriously, you'd think Utah would have figured it out by now as to why stuff *might* get invented here, and then commercialized literally anywhere else.  Utah has a long history of driving people away so they can find a better culture and work environment.  Utah has a better chance of fixing their air quality and water supply before they fix their culture.  See last paragarph for XEROX PARC
+
+https://en.wikipedia.org/wiki/Robert_Taylor_(computer_scientist)
+
+
