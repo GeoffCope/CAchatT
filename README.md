@@ -10,7 +10,7 @@ KAchaT aspires to make pretty pictures
 
 https://www.youtube.com/watch?v=Si6NbKqYEd8
 
-Don't worry helium, we're coming for you :)
+Don't worry helium, we're coming for you.  Too bad that's in California, probably have to move. Sigh.
 
 
 https://ui.adsabs.harvard.edu/abs/1974anh.....3.....P/abstract
