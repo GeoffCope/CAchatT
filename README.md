@@ -19,4 +19,9 @@ Seriously, you'd think Utah would have figured it out by now as to why stuff *mi
 
 https://en.wikipedia.org/wiki/Robert_Taylor_(computer_scientist)
 
+Bummer.  Problem already solved by Minerva.
 
+https://www.quantamagazine.org/to-teach-computers-math-researchers-merge-ai-approaches-20230215/
+
+Next iteration:
+MineEureka
