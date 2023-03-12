@@ -6,22 +6,5 @@ The Lucid Dream Simulator 3 Neophytes Edition should not be confused with the LD
 For information concerning LDS-1 and LDS-2 please see:
 https://www.youtube.com/watch?v=FIMaf4RemOU
 
-KAchaT aspires to make pretty pictures
+KAchaT aspires to make pretty pictures of KATarena
 
-https://www.youtube.com/watch?v=Si6NbKqYEd8
-
-Don't worry helium, we're coming for you.  Too bad that's in California, probably have to move. Sigh.
-
-
-https://ui.adsabs.harvard.edu/abs/1974anh.....3.....P/abstract
-
-Seriously, you'd think Utah would have figured it out by now as to why stuff *might* get invented here, and then commercialized literally anywhere else.  Utah has a long history of driving people away so they can find a better culture and work environment.  Utah has a better chance of fixing their air quality and water supply before they fix their culture.  See last paragarph before the section on XEROX PARC
-
-https://en.wikipedia.org/wiki/Robert_Taylor_(computer_scientist)
-
-Bummer.  Problem already solved by Minerva.
-
-https://www.quantamagazine.org/to-teach-computers-math-researchers-merge-ai-approaches-20230215/
-
-Next iteration:
-MineEureka
