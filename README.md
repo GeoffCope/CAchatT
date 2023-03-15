@@ -6,5 +6,4 @@ The Lucid Dream Simulator 3 Neophytes Edition should not be confused with the LD
 For information concerning LDS-1 and LDS-2 please see:
 https://www.youtube.com/watch?v=FIMaf4RemOU
 
-KAchaT aspires to make pretty pictures of KATarena
-
+Turns out KAT has a beautiful smile capable of making anyone smile.  Thanks KAT.
